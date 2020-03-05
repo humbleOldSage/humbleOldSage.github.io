@@ -1,1 +1,0 @@
-# humbleOldSage.github.io
